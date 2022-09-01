@@ -1,1 +1,1 @@
-[![nkqxaboi.jpg](https://cdn.smarthomelinker.com/nkqxaboi.jpg)]
+![qhaigkvd.jpg](https://cdn.smarthomelinker.com/qhaigkvd.jpg)
